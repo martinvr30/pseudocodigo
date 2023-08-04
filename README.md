@@ -3,4 +3,6 @@ Codigos iniciales de pseudocodigo.
 
 El pdf explica como se hace cada codigo,explica los requerimentos.
 
-if you need support,send me a DM on IG: https://www.instagram.com/w0rmd4rk/
+Contact:
+ https://www.instagram.com/martin.vr30/
+ www.linkedin.com/in/martin-guadalupe-villanueva-reyes
